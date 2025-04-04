@@ -4,3 +4,5 @@
 [Honey Download](https://www.mediafire.com/file/uoywyi4zz3dn1b5/%2521_%25C2%25A76Honey_%25C2%25A77%255B%25C2%25A7f256x%25C2%25A77%255D.zip/file)
 # FINAL LIGHT
 [Final Light Download](https://www.mediafire.com/file/cj3z3fu06vvwccu/)
+# PASTEL
+[Pastel Download](https://www.mediafire.com/file/tiux5ipfakeuhaw/%25C2%25A7e%25C2%25A7lPastel%25C2%25A78%25C2%25A7l%255B16x%255D.zip/file)

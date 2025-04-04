@@ -8,3 +8,5 @@
 [Pastel Download](https://www.mediafire.com/file/tiux5ipfakeuhaw/%25C2%25A7e%25C2%25A7lPastel%25C2%25A78%25C2%25A7l%255B16x%255D.zip/file)
 # IRIS
 [Iris Download](https://www.mediafire.com/file/qb90jaftdz47hck/Iris_16x.zip)
+# AMETHYST
+[Amethyst Download](https://www.mediafire.com/file/4ywq5fjadiqo61m/%25C2%25A75Amethyst_%25C2%25A78%255B%25C2%25A7e16x%25C2%25A78%255D.zip/file)
